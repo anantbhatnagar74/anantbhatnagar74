@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Anant Bhatnagar.
 - 👀 I’m interested in making electronic models such as cars & robots.
 - 🌱 I’m currently learning Artificial Intelligence & Data Science.
-- 📫 How to reach me : E-mail : anantbhatnagar74@gmail.com , Linkedln : www.linkedin.com/in/anant-bhatnagar-5a9891257
+- 📫 How to reach me : E-mail : anantbhatnagar278@gmail.com , Linkedln : www.linkedin.com/in/anant-bhatnagar74
 - 😄 Pronouns: He/Him
